@@ -1,5 +1,5 @@
 # Đề
-[FULL LINK](https://github.com/LaiLaK918/CK-2020-2021-OOP)
+[FULL LINK](https://drive.google.com/file/d/16JoKCe-KaulpbAOE347z4u2cCQNWHerA/view?usp=sharing)
 
 # 24/5/2022
 
